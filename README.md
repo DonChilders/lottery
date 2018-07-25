@@ -1,3 +1,0 @@
-# lottery
-# lottery
-# lottery
